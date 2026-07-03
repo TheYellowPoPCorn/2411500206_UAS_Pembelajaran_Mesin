@@ -1,1 +1,0 @@
-# 2411500206_UAS_Pembelajaran_Mesin
